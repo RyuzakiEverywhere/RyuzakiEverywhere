@@ -6,4 +6,4 @@ I'm RyuzakiEverywhere(aka LLawlietEverywhere) 👋 and I'm Coding on C#, C++, PH
 
 ## Donation
 
-Soon!!!
+Soon!!! Very Soon :D
