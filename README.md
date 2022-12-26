@@ -4,4 +4,4 @@ I'm RyuzakiEverywhere(aka LLawlietEverywhere) 👋 and I'm Coding on C#, C++, PH
 
 ## Donation
 
-Soon!!! Very Soon :D
+[Patreon](patreon.com/user?u=84778916)
